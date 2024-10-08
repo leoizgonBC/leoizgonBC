@@ -38,7 +38,7 @@ Mi objetivo es ayudar a las empresas a maximizar el valor de **Microsoft Dynamic
 
 ### 📫 ¿Quieres hablar?
 
-Puedes encontrarme en [LinkedIn](https://www.linkedin.com/in/leonardo-izquierdo-gonzalez-167977197/) o enviar un correo a **[tu-email@dominio.com](mailto:leonardo@infortisa.com)**.
+Puedes encontrarme en [LinkedIn](https://www.linkedin.com/in/leonardo-izquierdo-gonzalez-167977197/) o enviar un correo a **[leonardo@infortisa.com](mailto:leonardo@infortisa.com)**.
 
 ---
 
